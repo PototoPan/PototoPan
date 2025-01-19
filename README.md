@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on tbd
 - 📫 How to reach me: discord pototo5454
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: 2025 is a square number
 
 <!---
 PototoPan/PototoPan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
